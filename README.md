@@ -1,2 +1,0 @@
-# bwaa
-spesiall hehsk
